@@ -9,6 +9,6 @@ LETSGROWMORE is all about creating opportunities for leadership development, lea
 
 
 
-here are the two tasks provided by LGM
+Here are the two tasks provided by LGM
 
 
